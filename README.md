@@ -1,2 +1,4 @@
 # hello-world
-so ima start gettingready forthis
+so  ima start getting ready for this
+
+wookiee in the game but at least i tried alot
